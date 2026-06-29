@@ -1,4 +1,4 @@
-# 
+# Instantâneo Postman scripts para Mac OS | Top Postman scripts para PC Windows. Com gerenciamento de tags e minimapa — otimizado para máximo desempenho em cada plataforma.
 
 
 
